@@ -7,6 +7,4 @@ Ayush Chugwani
 
 Submitted to:
 
-Lalit Purohit Sir
-
 Upendra Singh Sir
